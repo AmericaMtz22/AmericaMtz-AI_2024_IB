@@ -1,1 +1,0 @@
-Tareas de inteligencia Artificial 
